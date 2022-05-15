@@ -1,2 +1,2 @@
-# offical-regestation -from-
+# offical-registration -from-
 office rage from 
